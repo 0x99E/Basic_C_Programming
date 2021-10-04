@@ -13,3 +13,10 @@
 ІПЗ-13   https://drive.google.com/drive/folders/1SroLP-G7XqnagHca1eN_5xvq5ABkbzDb?usp=sharing
  
 ІПЗ-14   https://drive.google.com/drive/folders/1Fkgo2umAXR6pWCI6hKgftUJlhESQ2-aF?usp=sharing
+
+Перенесення занять для підгруп доц.Ковалюк Т.В.
+
+23.09.21 четвер, пара 10.30 перенести на 4.10.21 понеділок пара 15.10
+23.09.21 четвер, пара 12.10 перенести на  7.10.21 четвер пара 9.00
+23.09.21 четвер, пара 13.40 перенести на 11.10.21 понеділок пара 15.10
+
