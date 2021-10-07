@@ -16,3 +16,12 @@ UPDATE:
 ІПЗ-13   https://drive.google.com/drive/folders/1SroLP-G7XqnagHca1eN_5xvq5ABkbzDb?usp=sharing
  
 ІПЗ-14   https://drive.google.com/drive/folders/1Fkgo2umAXR6pWCI6hKgftUJlhESQ2-aF?usp=sharing
+
+Перенесення занять для підгруп доц.Ковалюк Т.В.:
+
+23.09.21 четвер, третя пара о 12.10 перенесена на  7.10.21 четвер на першу пару о 9.00
+
+23.09.21 четвер, четверта пара 13.40 перенесена на 11.10.21 понеділок на  п'яту пару о 15.10
+
+Оновлені методичні вказівки в частині рейтингових балів  від 4.10.2021
+
